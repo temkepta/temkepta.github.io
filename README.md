@@ -1,1 +1,0 @@
-# temkepta.github.io
